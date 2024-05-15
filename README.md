@@ -17,3 +17,7 @@ meu nome é Maiara
 ![](https://media.tenor.com/ugxRdk_0SG8AAAAM/one-piece-egghead.gif)
 ![](https://media.tenor.com/v1t20zNF-k4AAAAM/naruto-anime.gif)
 ![](https://media.tenor.com/uO37-aKreAEAAAAM/kakashi-naruto.gif)
+![](https://media.tenor.com/iwXHwlY31ecAAAAM/yuji-itadori-suku.gif)
+![](https://media.tenor.com/_UPSELJpvdMAAAAM/walking-anime.gif)
+![](https://media.tenor.com/KJQ-Tb0BB5kAAAAM/choso-choso-jjk.gif)
+![](https://media.tenor.com/4au2IfxvCkkAAAAj/tokyo-revengers-ken-ryuguji.gif)
