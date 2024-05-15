@@ -1,6 +1,6 @@
 **💟Bem vindo ao meu perifil💟**
 
-meu nome é maiara
+meu nome é Maiara
 
 - Estou estudando no Alura
 - Estou me desenvolvendo na linguagem javaScripr
